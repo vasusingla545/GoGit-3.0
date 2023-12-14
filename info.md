@@ -1,1 +1,0 @@
-My name is Vasu Singla. I am currently studying in Indian Institute of Information technology, Allahabad. My branch is ECE and currently I am a 2nd year student. My hobbies are watching anime and playing video games.
